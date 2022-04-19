@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+random things that come to my mind
 
-Maybe say a some things about yourself.
+things that I would like to do, but mostly don't have time to
 
-Or maybe what you plan to blog about.
+notes about stuff that I don't want to forget
